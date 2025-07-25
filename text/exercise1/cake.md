@@ -2,7 +2,6 @@
 
 Yellow cake is delicious!  This recipe is passed down from my great-great-grandparents.
 
-My great-great-grandparents lived in Venice. They enjoyed traveling on the canals.
 Did you know Venice became Austrian territory when Napoleon signed the Treaty of Campo 
 Formio on 12 October 1797? I did not.
 
